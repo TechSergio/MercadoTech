@@ -2,6 +2,6 @@
 
 -Serrana Marset :female_sign:
 
--Sergio Marquez :infinity:
+-Sergio Marquez :blush:
 
 -Ana Camargo
