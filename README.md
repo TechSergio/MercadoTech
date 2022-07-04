@@ -1,4 +1,4 @@
-** _ GitHub _ **
+**_GitHub_**
 
 Me gusto mucho la plataforma GitHub por que ofrece comodidad a la hora de 
 guardar versiones, y facilidad para trabajar en equipo.
